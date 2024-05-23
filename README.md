@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RuroWork
+- 👀 I’m interested in ... Learn
+- 🌱 I’m currently learning ... PHP
+- 💞️ I’m looking to collaborate on ... Many things
+- 📫 How to reach me ... erasmocamacho@proton.me
+- 😄 Pronouns: ... Ch0nGu1
+- ⚡ Fun fact: ... Wherever short's
